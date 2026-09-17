@@ -225,4 +225,4 @@ Resident Evil 5 is available as a complete free version, with all features and u
 Download Resident Evil 5 now and immerse yourself in the action-packed world of survival horror! Don’t miss out on the chance to experience this thrilling game for free.
 
 ---
-**Last updated:** 2026-09-16 21:53:07 UTC
+**Last updated:** 2026-09-17 00:06:16 UTC
